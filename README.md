@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im currently persuing masters in<br>computer science at oklahoma State university
+Graduated in masters in<br>computer science at oklahoma State university!!
 
 3
 ## 🌐 Socials:
